@@ -34,7 +34,7 @@ Defendemos a diversidade e a inclusão em todos os aspectos. Estamos comprometid
 
 Se você está interessado em saber mais sobre a Digital College ou em se tornar um de nossos alunos, entre em contato conosco:
 
-- Website: [www.digitalcollege.com.br](www.digitalcollege.com.br)
+- Website: [https://digitalcollege.com.br](https://digitalcollege.com.br)
 - Central de Atendimento ao Aluno: [https://wa.me/5585997530095](https://wa.me/5585997530095)
 - Central de Vendas: [https://wa.me/5585999721749](https://wa.me/5585999721749)
 
